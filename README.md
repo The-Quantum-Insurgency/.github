@@ -1,0 +1,1 @@
+The Quantum Insurgency is an unofficial group of organized raiders that typically operate on the game [Quantum Science Energy Research Facility](https://www.roblox.com), a game created and developed by the ROBLOX group Quantum Science Inc.
